@@ -9,13 +9,6 @@ menu:
 
 Hola, aquí vas a leer un poco sobre mi 🤩
 
-> Excidit gente, si orat suo quaeque dura Calydon nata? Pars auro post stetit
-> adfusique imis amplexus. Agmina per fabricator
-> mittere Erymanthon habetque tot.
+Hola soy ing. en sistemas, con especialidad en redes, la programacion en realidad la deje de lado por mucho tiempo, vi la oportunidad de retomarlo con Launch X, me he dado cuenta que hay muchas cosas que no se y que estoy ansioso de aprender, este modulo se que me aportara mucho y me dara las herramientas para poder realizar de una mejor manera cuestiones laborales y quien sabe con chance conseguir un mejor empleo.
 
-**Cineres Nile ipsa** origine discurrunt adest Unde, et quem clausus, imo,
-virens quoque tales, potuit. Ingentes insilit corpore nutricis praebebat roganti
-licuit. Denique a vestros adulantum in bella lina parte et arte generi di igitur
-quis, digitis pedes. Cum resonant tamen, namque in anxia. Non nostri trahens
-ancora.
-
+Saludos! 🚀
